@@ -27,7 +27,7 @@ We put our own money into dividend-growth stocks and track the gains publicly. F
 * [Website](https://financexaditya.in/)
 * [X (Twitter)](https://x.com/financexaditya)
 * [Instagram](https://www.instagram.com/financexaditya)
-* [LinkedIn](https://www.linkedin.com/company/103547318/)
+* [LinkedIn](https://www.linkedin.com/financexaditya/)
 
 ---
 *Disclaimer: The logic provided here is for educational purposes. Always consult a registered financial advisor or CA before filing taxes.*
